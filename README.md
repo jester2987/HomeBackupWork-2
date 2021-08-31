@@ -7,7 +7,8 @@
 
 ข้อ2
 
-![2 3](https://user-images.githubusercontent.com/74999708/131488076-978c8bf9-e8f2-4677-8c70-30828bc0f8f9.png)
+![2 3](https://user-images.githubusercontent.com/74999708/131488665-62dfaa51-6105-4e60-be09-65b277c29c04.png)
+
 
 
 
